@@ -12,3 +12,8 @@
 >- token-based economics,
 >
 >*(diverging from the centralized models of previous web generations)*.
+
+`God` : G.o.d. - Geographically over-limited distributed Entity
+>"An Entity (human, virtual or humanoid)" geographically based outside this physical (Mass, Energy, Time & Space) Universe.
+>Virtual. Extra-Dimensional. Extra-Terrestrial. Meta.
+>Known Aliases: Angel, Divine, Zeus 
